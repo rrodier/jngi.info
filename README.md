@@ -1,3 +1,4 @@
+<img src="http://www.jngi.org/wordpress/wp-content/uploads/2015/05/nations-leader_web-banner.jpg">
 #John N Gardner Institute for Excellence in Undergraduate Education  
  
 As the nation’s leader in higher education student success, the non-profit, John N. Gardner Institute (JNGI) has been partnering with higher education institutions for more than 16 years. Our work helps to create and subsequently implement evidence-based plans for improving student learning, success, retention and completion through a variety of processes, expert guidance and support. Our processes include:  
